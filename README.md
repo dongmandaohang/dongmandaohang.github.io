@@ -1,6 +1,7 @@
 <h2>动漫网站排行榜 - 免费动漫在线看|动漫网站推荐|导航大全</h2>
 <p>动漫导航是一种专注于动漫资源的导航网站，旨在为用户提供全面、便捷的动漫资源搜索和访问服务。这类网站通常整合了多种动漫相关资源，包括动画、漫画、游戏、周边商品等，为动漫爱好者提供一站式服务。动漫导航网站不仅方便用户快速找到感兴趣的动漫内容，还通过分类和推荐功能提升用户体验。</p>
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanerciyuan" target="_blank"><strong>动漫导航最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
   <li><strong>资源分类清晰</strong>：动漫导航网站通常按照类型（如热血、恋爱、科幻）、年代（经典老番、新番）、地区（日本动漫、欧美动漫）等维度对动漫资源进行分类，方便用户快速定位所需内容。</li>
